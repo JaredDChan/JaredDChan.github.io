@@ -1,2 +1,0 @@
-# JaredDChan.github.io
-Website
